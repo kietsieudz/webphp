@@ -1,0 +1,1 @@
+<p>Cám Ơn Quý Khách Đã Mua Hàng, Chúng Tôi Sẽ Liên Hệ Quý Khách Trong Thời Gian Sớm Nhất.</p>
